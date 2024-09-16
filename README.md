@@ -38,4 +38,4 @@
 ---
 
 ### 📫 Get in Touch:
-- LinkedIn: [Olti Yoni](https://www.linkedin.com/in/olti/)
+- LinkedIn: [Yoni Olti](https://www.linkedin.com/in/olti/)
